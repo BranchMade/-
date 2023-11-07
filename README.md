@@ -13,3 +13,6 @@
 
 Омнимен
 ![w1500_49238689](https://github.com/BranchMade/super.brak/assets/147017666/93f5c980-82c0-4128-a97e-52e019e1965b)
+
+Мачомен
+![ty-daleko-a-mozhet-v-tjurmu-chto-za-mem-s-machomenom-1](https://github.com/BranchMade/super.brak/assets/147017666/5a14c34f-d6fa-467c-b10e-217ddbea57f1)
